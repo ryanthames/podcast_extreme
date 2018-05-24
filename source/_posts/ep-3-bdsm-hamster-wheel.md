@@ -1,5 +1,5 @@
 ---
-title: Ep 3 - BDSM Hamster Wheel
+title: Ep 3 - BDSM Hamster Wheel (SG1 S1E3)
 date: 2018-05-15 15:14:36
 tags: sg1
 ---
