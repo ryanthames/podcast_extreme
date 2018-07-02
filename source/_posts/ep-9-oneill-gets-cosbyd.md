@@ -1,6 +1,6 @@
 ---
 title: Ep 9 - O'Neill Gets Cosby'd
-date: 2018-06-15 02:26:32
+date: 2018-06-25 02:26:32
 tags: sg1
 ---
 
